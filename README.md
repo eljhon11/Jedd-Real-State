@@ -1,1 +1,1 @@
-# Jedd-Real-State
+https://jedd-real-state1.odoo.com/
